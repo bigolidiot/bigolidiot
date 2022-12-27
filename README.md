@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @bigolidiot
+- And I'm a big ol' idiot
+- I'm stupid
+- kill me
